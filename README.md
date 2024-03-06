@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me gmail me -rylandabre007@gmail.com
+- 📫 How to reach me email me -rylandabre007@gmail.com
 - 😄 Pronouns: he/her
 - ⚡ Fun fact: i am smart 
 
